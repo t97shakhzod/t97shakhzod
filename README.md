@@ -14,7 +14,7 @@ I’m a student at Handong Global University, currently pursuing a degree in ICT
 
 💬 **Ask Me About:** If you’re curious about the technologies I’m using, the challenges I’m facing, or just want to chat about the latest trends in ICT, feel free to reach out!
 
-📫 **How to Reach Me:** You can contact me through [your preferred contact method or social media handle].
+📫 **How to Reach Me:** You can contact me through [shakhzod.kayumov.97@mail.ru].
 
 😄 **Pronouns:** [Mr]
 
