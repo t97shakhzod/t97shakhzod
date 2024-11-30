@@ -14,4 +14,4 @@ I’m a student at Handong Global University, currently pursuing a degree in ICT
 
 😄 Pronouns: [Mr]
 
-⚡ **Fun Fact: When I’m not coding or studying, you’ll likely find me exploring the latest tech gadgets or indulging in a good sci-fi novel.
+⚡ Fun Fact: When I’m not coding or studying, you’ll likely find me exploring the latest tech gadgets or indulging in a good sci-fi novel.
